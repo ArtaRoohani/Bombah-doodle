@@ -1,4 +1,4 @@
-Bombah Doodle
+💣🔥🫃Bombah Doodle
 
 Bombah Doodle is a quirky, hand-drawn twist on the classic Bomberman formula, reimagined in a chaotic black-and-white doodle style.
 
